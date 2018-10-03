@@ -1,7 +1,7 @@
-# Fortnite Skins Free No Survey
+# Fortnite V Bucks Free No Survey
 <a href="https://t.co/EWngFzxrus"><img src="https://i.imgur.com/lBYsCjq.png"/></a>
 
-fortnite free Skins
+fortnite free V Bucks
 </br>
 fortnite Online
 </br>
