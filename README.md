@@ -1,5 +1,6 @@
 # Free Fortnite V Bucks No Survey
-<a href="https://t.co/EWngFzxrus"><img src="https://i.imgur.com/lBYsCjq.png"/></a>
+
+<a href="https://vk.com/page-173169643_53554927"><img src="https://i.imgur.com/lBYsCjq.png"/></a>
 
 fortnite free V Bucks
 </br>
